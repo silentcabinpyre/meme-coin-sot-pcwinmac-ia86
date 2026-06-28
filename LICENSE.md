@@ -1,4 +1,4 @@
-# 
+# متقدم meme coin sniper bot سكريبتات لـ Mac OS | أصلي meme coin sniper bot سكريبتات لـ PC Windows. مع اكتشاف ضريبة البيع و إدارة الهامش — مُحسَّن لأقصى أداء على جميع المنصات.
 
 
 
